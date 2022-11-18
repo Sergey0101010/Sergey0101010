@@ -3,8 +3,6 @@
 
 - 📫 How to reach me **https://t.me/supa_hot** or **sergey.kobelew@yandex.ru**
 
-- 📄 Know about my experiences [MyResume](https://drive.google.com/file/d/1nSX47cBKmufoM1axP02DQlADwFMiDQIL/view?usp=sharing)
-
 - ⚡ **Swim, bike, run**
 
 
